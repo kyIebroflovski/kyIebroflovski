@@ -1,1 +1,1 @@
-WIP
+**check out my [r](https://rentry.co/humanekite)entry , [u](https://rentry.co/bunhoards)rl [h](https://listography.com/tomsimons)oard and [c](https://drstrange.crd.co/)rd while this page gets fixed soon!**
