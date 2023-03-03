@@ -1,2 +1,2 @@
-**[r](https://rentry.co/humanekite)entry , [u](https://rentry.co/bunhoards)rl [h](https://listography.com/tomsimons)oard and [c](https://drstrange.crd.co/)rd**
+**[R](https://rentry.co/humanekite)entry , [U](https://rentry.co/bunhoards)rl [H](https://listography.com/tomsimons)oard and [C](https://drstrange.crd.co/)rd**
 **GITHUB IN WIP!**
